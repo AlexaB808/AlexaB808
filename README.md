@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on school projects...
 - 📫 How to reach me: Discord
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am a part of Archery Club and ITE (Institute of Transportation Engineers
+- ⚡ Fun fact: I am a part of Archery Club and ITE (Institute of Transportation Engineers)
 
 <!---
 AlexaB808/AlexaB808 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
